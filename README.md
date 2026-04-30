@@ -1,0 +1,1 @@
+I am a Seminary graduate with a background in graphic arts and web development. During the pandemic, I gained valuable experience as a medical biller, combining creativity with administrative precision. Passionate about merging artistry with technology, I aim to contribute impactful solutions in digital innovation and healthcare.
